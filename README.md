@@ -43,7 +43,6 @@ Let's collaborate or chat! Reach out to me via:
 
 - 💼 [TeleGram](https://AlefStuff.t.me)  
 - 📧 [Email Me](mailto:AlefMail@gmail.com)  
-- ![](https://img.shields.io/badge/X-000000?style=for-the-badge&logo=x&logoColor=white) [X](https://X.com/theAlefYari)
 
 ---
 
